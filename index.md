@@ -1,37 +1,8 @@
-## Welcome to GitHub Pages
+<title>𝐋𝗢𝐆𝐈𝐍 𝗨𝐏𝐇𝐎𝐋𝗗 | 𝐌𝗬 𝗨𝐏𝐇𝐎𝐋𝗗 𝗔𝗖𝗖𝗢𝗨𝐍𝐓</title>
+<meta property="og:description" content="The Crypto trading platform suggested by the professional uphold login where after verification you can start your trading journey and can buy 𝐋𝗢𝐆𝐈𝐍 𝗨𝐏𝐇𝐎𝐋𝗗 | 𝐌𝗬 𝗨𝐏𝐇𝐎𝐋𝗗 𝗔𝗖𝗖𝗢𝗨𝐍𝐓 to Uphold Account  trade and sell any Crypto currency Fiat currency and precious metals." />
+<meta name="keywords" content="uphold login, uphold log in, uphold sign in, uphold sign in account, uphold login account, 𝐋𝗢𝐆𝐈𝐍 𝗨𝐏𝐇𝐎𝐋𝗗, 𝐌𝗬 𝗨𝐏𝐇𝐎𝐋𝗗 𝗔𝗖𝗖𝗢𝗨𝐍𝐓">
+</head>
 
-You can use the [editor on GitHub](https://github.com/upholdlogen/enusa/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/upholdlogen/enusa/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<img class="aligncenter wp-image-23 size-full" src="http://xn--uphld-log-76a.com/wp-content/uploads/2022/06/uphd-login-e1655135550767.jpg" alt="Uphóld login" width="1347" height="562" />
+<h2><b>𝐋𝗢𝐆𝐈𝐍 𝗨𝐏𝐇𝐎𝐋𝗗 | 𝐌𝗬 𝗨𝐏𝐇𝐎𝐋𝗗 𝗔𝗖𝗖𝗢𝗨𝐍𝐓</b> </h2>
+<p> 𝐋𝗢𝐆𝐈𝐍 𝗨𝐏𝐇𝐎𝐋𝗗 | 𝐌𝗬 𝗨𝐏𝐇𝐎𝐋𝗗 𝗔𝗖𝗖𝗢𝗨𝐍𝐓 is a cryptocurrency platform that offers a comprehensive range of financial products and services. It allows users to purchase, sell, or trade nearly 100 cryptocurrencies as well as other 𝐋𝗢𝐆𝐈𝐍 𝗨𝐏𝐇𝐎𝐋𝗗 | 𝐌𝗬 𝗨𝐏𝐇𝐎𝐋𝗗 𝗔𝗖𝗖𝗢𝗨𝐍𝐓</p>
